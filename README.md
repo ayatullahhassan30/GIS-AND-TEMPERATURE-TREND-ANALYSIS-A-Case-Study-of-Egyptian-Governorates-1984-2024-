@@ -1,0 +1,1 @@
+# GIS-AND-TEMPERATURE-TREND-ANALYSIS-A-Case-Study-of-Egyptian-Governorates-1984-2024-
